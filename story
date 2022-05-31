@@ -1,0 +1,2 @@
+little red riding hood was goinf to bring medicine to her grandma and decided to go the short way to her grandma sinsted of the long way. she decided to pick some flowers she found and met the wolf. the wolf said that he wanted to take the cake from her basket but she said no. she continued to her grandma.
+the wolf went to the grandmas hous and ate her up and dressed like her. little red riding hood went to the house and got nearly eaten up by the wolf who tricked her. the lumberejack heard the cries of little red riding hood and saved thge grandma and the wolf.
